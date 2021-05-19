@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Avery-marcomm
+- 👀 I’m interested in marketing automation and crypto 
+- 🌱 I’m currently learning python and R
+- 💞️ I’m looking to find a mentor!
+- 📫 How to reach me avery.s.williamson@gmail.com
